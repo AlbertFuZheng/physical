@@ -1,2 +1,3 @@
 # physical
-a github test when i'm taking the physics class
+a github test when i'm taking thedawdwad
+hahhahahh
